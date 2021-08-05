@@ -13,3 +13,10 @@
 ## 2021-08-03
 
 * Big Nate Mr. Popularity, by Lincoln Peirce, 2014
+
+## 2021-08-04
+
+## 2021-08-05
+
+* Big Nate All Work And No Play
+
