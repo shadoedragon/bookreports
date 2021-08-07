@@ -20,3 +20,10 @@
 
 * Big Nate All Work And No Play
 
+## 2021-08-06
+
+* Big Nate Genius Mode
+
+## 2021-08-07
+
+* (Now In Full Color) Captain Under pants And The Perilous Plot Of Professor Poopypants
