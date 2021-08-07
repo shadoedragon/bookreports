@@ -16,6 +16,8 @@
 
 ## 2021-08-04
 
+​        (Nothing)
+
 ## 2021-08-05
 
 * Big Nate All Work And No Play
