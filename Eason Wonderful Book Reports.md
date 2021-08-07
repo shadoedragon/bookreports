@@ -20,12 +20,13 @@
 
 ## 2021-08-05
 
-* Big Nate All Work And No Play
+* Big Nate All Work And No Play, by Lincoln Peirce, 2012
 
 ## 2021-08-06
 
-* Big Nate Genius Mode
+* Big Nate Genius Mode, Lincoln Peirce, 2013
 
-## 2021-08-07
+## 2021-08-07 
 
-* (Now In Full Color) Captain Under pants And The Perilous Plot Of Professor Poopypants
+* (Now In Full Color) Captain Under pants And The Perilous Plot Of Professor Poopypants, Dav Pilkey, 2003
+* I Spy Ultimate Challenger! A Book Of Picture Riddles, Photographs by Walter Wick Riddles by Jean Marzollo, 2003 
