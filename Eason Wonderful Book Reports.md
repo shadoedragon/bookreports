@@ -30,3 +30,4 @@
 
 * (Now In Full Color) Captain Under pants And The Perilous Plot Of Professor Poopypants, Dav Pilkey, 2003
 * I Spy Ultimate Challenger! A Book Of Picture Riddles, Photographs by Walter Wick Riddles by Jean Marzollo, 2003 
+* (Now In Full Color) Captain Under Pants And The Big, Bad Battle Of The Bionic Booger Boy Part 1: The Night Of The Nasty Nostril Nuggets, Dav Pilkey, 2003 
