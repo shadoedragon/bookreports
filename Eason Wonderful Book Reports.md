@@ -34,4 +34,12 @@
 
 ## 2021-08-08
 
-* (Now In Full Color) Captain Under Pants And The Big, Bad Battle Of The Bionic Booger Boy Part 2: The Revenge Of The Ridiculous Robo-Boogers
+* (Now In Full Color) Captain Under Pants And The Big, Bad Battle Of The Bionic Booger Boy Part 2: The Revenge Of The Ridiculous Robo-Boogers, Dav Pilkey, 2003
+
+## 2021-08-09
+
+Nothing
+
+## 2021-08-09
+
+* (Now In Full Color) Captain Under Pants And The Purple Potty People
